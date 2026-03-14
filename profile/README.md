@@ -1,3 +1,5 @@
-# Helping You Write Well
+# Adam's Edits
 
-[edits.AdamGreenberg.com](https://edits.AdamGreenberg.com)
+### Helping You Write Well
+
+#### [edits.AdamGreenberg.com](https://edits.AdamGreenberg.com)
